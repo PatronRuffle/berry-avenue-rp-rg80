@@ -1,4 +1,4 @@
-#  
+#  updated berry avenue rp Script offers the most advanced berry avenue rp Script, with teleport and god mode. Perfect for dominating any match.
 
 
 
